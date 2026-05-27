@@ -2,4 +2,4 @@
 
 **"Treasures without masters, gold without borders"**
 
-resources on cryptocurrencies and economics - coming soon
+resources on fintech and economics - coming soon
